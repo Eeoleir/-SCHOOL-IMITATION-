@@ -1,3 +1,5 @@
-🔖🔖 SCHOOL IMITATION 🔖🔖
+🔖 SCHOOL IMITATION 🔖
 
-🌐 phinma-coc.pages.dev
+🌐 https://eeoleir.github.io/-SCHOOL-IMITATION-/
+
+✅ inspired by youtube *forgot the channel name 💩
